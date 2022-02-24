@@ -47,6 +47,8 @@ https://media.discordapp.net/attachments/915113617354014761/946236004929515570/g
 
 https://media.discordapp.net/attachments/915113617354014761/946236152803917824/PIGS.PNG
 
+https://media.discordapp.net/attachments/852697918397349889/946240309912801351/Token.PNG?width=572&height=559
+
 crédito do injection https://github.com/Stanley-GF
 
 
